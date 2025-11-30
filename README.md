@@ -1,28 +1,27 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=10shadows&amp;label=ecdysis&amp;color=gray&amp;style=plastic)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=10shadows&amp;label=ecdysis&amp;color=blue&amp;style=plastic)
 <table>
   <tr>
-    <td width="40%" align="center">    </td>
+    <td width="40%" align="center">
+      <img src="https://files.catbox.moe/c3dwrq.webp" width="600">
+    </td>
     <td width="60%" valign="top">
-      <p><i>@ <b>fuck me up twin</b></i></p>
+      <p><i>head down go to sleep to the rhythm of the war drums</i></p>
       <p>
         my name is <b>nicole</b>, 17 years old, <b>i use she/her pronouns ONLY</b> & im from poland  
-        i dont have a dni, i dont like you = i hide get outta my sight
-        whisper if you want to be friends, im tabbed out most of the time :) c+h ok always
-      </p>
-      <p>
-        my main interests are the scp foundation, balatro, genshin impact, postal, silksong, coding, metal and rock music, drugs & marine engineering
+       i will understand every niche reference you make im an emo chronically online girl that aspires
+        to be a gambler drug addict in the future
       </p>
       <p align="center">
         <img src="https://nustuff.carrd.co/assets/images/gallery15/6c07f5d1.jpg?v=0a15e1db" width="120">
-        <img src="https://nustuff.carrd.co/assets/images/gallery07/75156ca0.png?v=0a15e1db" width="120">
+        <img src="https://nustuff.carrd.co/assets/images/gallery12/7e014501.png?v=0a15e1db" width="120">
         <img src="https://nustuff.carrd.co/assets/images/gallery10/04d9e96d.png?v=0a15e1db" width="120">
       </p>
  <p align="center"> <a href="https://portal.atabook.org/">atabook (sign!)</a>ㅤㅤ<a href="https://guns.lol/repentance">gunslol</a>ㅤㅤ<a href="https://rentry.co/angelofdarkness">information rentry</a>ㅤㅤ<a href="https://fightcIub.straw.page/">strawpage</a>
 </p>
       <p align="center">
-        <img src="https://gifcity.carrd.co/assets/images/gallery18/e87e8a26.gif?v=e3c0bc0f" width="150">
-        <img src="https://gifcity.carrd.co/assets/images/gallery18/33b6e7f8.gif?v=e3c0bc0f" width="154">
-        <img src="https://supplies.ju.mp/assets/images/gallery07/f60bbb94.gif?v=1c1ba870" width="150">
+        <img src="https://gifcity.carrd.co/assets/images/gallery20/3ed79494.gif?v=e3c0bc0f" width="150">
+        <img src="https://gifcity.carrd.co/assets/images/gallery187/c19700c4.gif?v=e3c0bc0f" width="154">
+        <img src="https://gifcity.carrd.co/assets/images/gallery20/0e1f4280.gif?v=e3c0bc0f" width="150">
       </p>
     </td>
   </tr>
