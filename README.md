@@ -8,7 +8,7 @@
       <p><i>head down go to sleep to the rhythm of the war drums</i></p>
       <p>
         my name is <b>nicole</b>, 17 years old, <b>i use she/her pronouns ONLY</b> & im from poland  
-       i will understand every niche reference you make im a metalhead chronically online girl that aspires
+       i will understand every niche reference you make im a metalhead girl that aspires
         to be a gambler drug addict in the future ... read my links yo
       </p>
       <p align="center">
