@@ -9,14 +9,14 @@
       <p>
         my name is <b>nicole</b>, 17 years old, <b>i use she/her pronouns ONLY</b> & im from poland  
        i will understand every niche reference you make im a metalhead chronically online girl that aspires
-        to be a gambler drug addict in the future
+        to be a gambler drug addict in the future ... read my links yo
       </p>
       <p align="center">
         <img src="https://nustuff.carrd.co/assets/images/gallery15/6c07f5d1.jpg?v=0a15e1db" width="120">
         <img src="https://nustuff.carrd.co/assets/images/gallery12/7e014501.png?v=0a15e1db" width="120">
         <img src="https://nustuff.carrd.co/assets/images/gallery10/04d9e96d.png?v=0a15e1db" width="120">
       </p>
- <p align="center"> <a href="https://portal.atabook.org/">atabook (sign!)</a>ㅤㅤ<a href="https://guns.lol/repentance">gunslol</a>ㅤㅤ<a href="https://rentry.co/angelofdarkness">information rentry</a>ㅤㅤ<a href="https://fightcIub.straw.page/">strawpage</a>
+ <p align="center"> <a href="https://portal.atabook.org/">atabook</a>ㅤㅤ<a href="https://rentry.co/angelofdarkness">pt information rentry</a>ㅤㅤ<a href="https://fightcIub.straw.page/">strawpage</a>
 </p>
       <p align="center">
         <img src="https://gifcity.carrd.co/assets/images/gallery20/3ed79494.gif?v=e3c0bc0f" width="150">
