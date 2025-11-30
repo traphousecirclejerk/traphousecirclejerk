@@ -5,7 +5,7 @@
       <img src="https://files.catbox.moe/wrwn7l.png" width="300">
     </td>
     <td width="60%" valign="top">
-      <p><i>@ <b>10shadows</b></i></p>
+      <p><i>@ <b>traphouse circlejerk... known as 10shadows</b></i></p>
       <p>
         my name is <b>nicole</b>, 17 years old, <b>i use she/her pronouns ONLY</b> & im from poland  
         i dont have a dni, i dont like you = i hide get outta my sight
