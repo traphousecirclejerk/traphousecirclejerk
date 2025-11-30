@@ -1,9 +1,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=10shadows&amp;label=ecdysis&amp;color=gray&amp;style=plastic)
 <table>
   <tr>
-    <td width="40%" align="center">
-      <img src="https://files.catbox.moe/m0tk3l.png" width="300">
-    </td>
+    <td width="40%" align="center">    </td>
     <td width="60%" valign="top">
       <p><i>@ <b>traphouse circlejerk... known as 10shadows</b></i></p>
       <p>
