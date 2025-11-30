@@ -2,7 +2,7 @@
 <table>
   <tr>
     <td width="40%" align="center">
-      <img src="https://files.catbox.moe/wrwn7l.png" width="300">
+      <img src="https://files.catbox.moe/m0tk3l.png" width="300">
     </td>
     <td width="60%" valign="top">
       <p><i>@ <b>traphouse circlejerk... known as 10shadows</b></i></p>
