@@ -12,16 +12,14 @@
         to be a gambler drug addict in the future ...</p> <p>read my links yo! c+h always ok, you can always talk to me, write something on my strawpage or ata and color my ugly ass tree : )
       </p>
       <p align="center">
-        <img src="https://nustuff.carrd.co/assets/images/gallery15/6c07f5d1.jpg?v=0a15e1db" width="120">
-        <img src="https://nustuff.carrd.co/assets/images/gallery12/7e014501.png?v=0a15e1db" width="120">
-        <img src="https://nustuff.carrd.co/assets/images/gallery10/04d9e96d.png?v=0a15e1db" width="120">
+        <img src="https://web.archive.org/web/20091025220513/http://geocities.com/tsumori1437/music.gif">
       </p>
  <p align="center"> <a href="https://portal.atabook.org/">atabook</a>ㅤㅤ<a href="https://rentry.co/angelofdarkness">pt information rentry</a>ㅤㅤ<a href="https://fightcIub.straw.page/">strawpage</a>
 </p>
       <p align="center">
-        <img src="https://gifcity.carrd.co/assets/images/gallery20/3ed79494.gif?v=e3c0bc0f" width="150">
-        <img src="https://gifcity.carrd.co/assets/images/gallery187/c19700c4.gif?v=e3c0bc0f" width="154">
-        <img src="https://gifcity.carrd.co/assets/images/gallery20/0e1f4280.gif?v=e3c0bc0f" width="150">
+        <img src="https://64.media.tumblr.com/6d12a2374206fe6e8fde0798e3e32894/0b1ab1662ed45859-35/s250x400/fa1336eb32c68fcd6956f3fac56bdca20b00d197.gifv" width="150">
+        <img src="https://popteamepic.carrd.co/assets/images/gallery03/2226c45b.gif?v10408301085951" width="154">
+        <img src="https://popteamepic.carrd.co/assets/images/gallery21/6fd3d694.gif?v10408301085951" width="150">
       </p>
     </td>
   </tr>
