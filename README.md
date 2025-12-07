@@ -9,7 +9,7 @@
       <p>
         my name is <b>nicole</b>, you can also call me thcj from my user, 17 years old, <b>please use only she/her pronouns 4 me</b> & im from poland  
        i will understand every niche reference you make im a metalhead edgy girl that aspires
-        to be a gambler drug addict in the future ... my life ends at 21 on a party in miami, florida!</p> <p>read my links yo! c+h always ok, you can always talk to me, write something on my strawpage or ata and color my ugly ass tree : )
+        to be a gambler drug addict in the future .. my life ends at 21 on a party in miami!</p> <p>read my links yo! c+h always ok, you can always talk to me, write something on my strawpage or ata and color my ugly ass tree : )
       </p>
       <p align="center">
         <img src="https://web.archive.org/web/20091025220513/http://geocities.com/tsumori1437/music.gif">
