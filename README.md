@@ -2,14 +2,14 @@
 <table>
   <tr>
     <td width="40%" align="center">
-      <img src="https://files.catbox.moe/c3dwrq.webp" width="600">
+      <img src="https://files.catbox.moe/a8hp8t.png" width="600">
     </td>
     <td width="60%" valign="top">
-      <p><i>head down go to sleep to the rhythm of the war drums</i></p>
+      <p><i>SEEN CRAZY SHIT, MAN, CRAZY SHIT!</i></p>
       <p>
-        my name is <b>nicole</b>, 17 years old, <b>i use she/her pronouns ONLY</b> & im from poland  
-       i will understand every niche reference you make im a metalhead girl that aspires
-        to be a gambler drug addict in the future ... read my links yo
+        my name is <b>nicole</b>, you can also call me thcj from my user, 17 years old, <b>please use only she/her pronouns 4 me</b> & im from poland  
+       i will understand every niche reference you make im a metalhead edgy girl that aspires
+        to be a gambler drug addict in the future ...</p> <p>read my links yo! c+h always ok, you can always talk to me, write something on my strawpage or ata and color my ugly ass tree : )
       </p>
       <p align="center">
         <img src="https://nustuff.carrd.co/assets/images/gallery15/6c07f5d1.jpg?v=0a15e1db" width="120">
