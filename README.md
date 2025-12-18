@@ -1,5 +1,6 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=10shadows&amp;label=caught&amp;color=blue&amp;style=plastic)
 <p>c+h ok whisper if you want to be friends https://fightcIub.straw.page/</p>
+<br>(f)atabook - https://portal.atabook.org/
 
 
 https://github.com/user-attachments/assets/fa598d6c-97ce-4b00-8bea-63550339e320
