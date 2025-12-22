@@ -1,5 +1,5 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=10shadows&amp;label=caught&amp;color=blue&amp;style=plastic)
-<p>c+h ok whisper if you want to be friends https://fightcIub.straw.page/
+<p>c+h ok whisper if you want to be friends https://lastlegaldrug.straw.page/
 <br>(f)atabook - https://portal.atabook.org/
 <br>FOLLOW ME ON LETTERBOXD https://letterboxd.com/methotline/</p>
 
