@@ -1,3 +1,6 @@
+
+![igdih phink](https://github.com/user-attachments/assets/88adec0e-f85c-4e39-a0cd-393fe8becd6e)
+
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=10shadows&amp;label=caught&amp;color=blue&amp;style=plastic)
 <p>c+h ok whisper if you want to be friends https://lastlegaldrug.straw.page/
 <br>(f)atabook - https://portal.atabook.org/
