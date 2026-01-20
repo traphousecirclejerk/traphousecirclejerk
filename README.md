@@ -1,2 +1,2 @@
-<p>im from jerusalem
-<br>https://helplessness.straw.page/</p>
+<p>im from jerusalem Larp larp larp sahur
+<br>https://rentry.co/angelofdarkness/</p>
