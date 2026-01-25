@@ -1,2 +1,2 @@
-<p>im from jerusalem Larp larp larp sahur
+<p>nicole, she/her only, c+h ok w2i
 <br>https://rentry.co/angelofdarkness/</p>
