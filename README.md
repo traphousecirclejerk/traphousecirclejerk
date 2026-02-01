@@ -1,1 +1,1 @@
-https://rentry.co/redreality
+<div align="center">https://rentry.co/redreality</div>
