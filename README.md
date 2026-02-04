@@ -1,2 +1,4 @@
-<p align="center">https://rentry.co/redreality
+![](https://komarev.com/ghpvc/?username=traphousecirclejerk&color=blue)
+<p align="center">
+  https://rentry.co/redreality
 <br>https://portal.atabook.org/</p>
