@@ -9,7 +9,3 @@
 
 </p>
 </p>
-
-
-https://github.com/user-attachments/assets/bff3daa1-3a19-49fb-bbe5-127557cffc35
-
