@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://komarev.com/ghpvc/?username=traphousecirclejerk&color=blue&label=parasocial+fangirls&style=for-the-label&base=18500"></p>
+<img src="https://komarev.com/ghpvc/?username=traphousecirclejerk&color=blue&label=parasocial+fangirls+(traphouse+circlejerk+loves+you)&style=for-the-label&base=18500"></p>
 <p align="center">  https://rentry.co/joostkleins
 <br>https://portal.atabook.org/
   <p align="center">
