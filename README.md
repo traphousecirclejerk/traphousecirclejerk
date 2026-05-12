@@ -1,6 +1,6 @@
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=traphousecirclejerk&color=blue&label=parasocial+fangirls+(traphouse+circlejerk+loves+you)&style=for-the-label&base=18500"></p>
-<p align="center">  https://rentry.co/joostkleinsㅤㅤ/ㅤㅤhttps://portal.atabook.org/
+<p align="center"> <a href="https://rentry.co/joostkleins">rentry</a>ㅤㅤ<a href="https://rentry.co/doitgood">extended</a>ㅤㅤ<a href="https://portal.atabook.org/">atabook</a>
   <br> Im traphouse circlejerk or just Nicole i fucking hate pony town but i sure do love joost klein
   <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31v5uloyvwhloiiyan3b35ekvv5e&redirect=true">
