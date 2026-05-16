@@ -7,7 +7,7 @@
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31v5uloyvwhloiiyan3b35ekvv5e&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31v5uloyvwhloiiyan3b35ekvv5e&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=ffffff&bar_color_cover=false">
   </a>
-    <img width="300" src="https://i1-c.pinimg.com/1200x/13/73/56/137356c3411f24bca5a9af759723cc28.jpg" />
+    <img width="300" src="https://files.catbox.moe/jwgkru.png" />
 
 </p>
 </p>
